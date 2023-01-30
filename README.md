@@ -11,6 +11,3 @@ I did finish this
 
 nkncdknscdscdskmcdskmcdskmcdsnmcds
 jsdnjcdsnjccsd
-
-kcdmkdckmcdkmcd
-dckmcdkmckmdckmd
